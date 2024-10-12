@@ -7,3 +7,5 @@
 - 😄 Pronouns: ela/dela
 
  ![](https://media.tenor.com/VXrSWYKdDYsAAAAi/zzz.gif)
+ 
+![](https://media.tenor.com/Y36P-K0uQa8AAAAi/silver-wolf-honkai.gif)
